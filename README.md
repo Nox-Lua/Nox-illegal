@@ -1,7 +1,3 @@
-Ak-illegal
-
-Retrouvez moi sur discord : ! "/. Akira ϟ#8047
+NOX-illegal
 
 Script Shop illegal en RageUI ! 🥀
-
-Discord : https://discord.gg/BD4BGzbQCQ
